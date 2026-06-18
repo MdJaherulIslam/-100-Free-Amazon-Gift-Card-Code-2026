@@ -1,4 +1,5 @@
 Amazon-Gift-Card-Code-2026
+
 Meta Description: Learn legitimate ways to get a free Amazon gift card code in 2026 and avoid fake $100 Amazon gift card generator scams.
 
 [Get Free Amazon Gift Card](https://tinyurl.com/mtsxeev3)
